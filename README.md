@@ -40,3 +40,8 @@ Building AI-powered products, exploring aerospace technologies and developing pr
 ⸻
 
 Building. Experimenting. Innovating.
+🛠️ Technologies & Tools
+
+🌐 Connect
+
+
